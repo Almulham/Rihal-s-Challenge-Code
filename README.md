@@ -1,1 +1,0 @@
-# Rihal-s-Challenge-Code
